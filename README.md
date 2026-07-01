@@ -218,7 +218,7 @@ GitHub:
 https://github.com/AradhyaMaheshwari-bit
 
 LinkedIn:
-www.linkedin.com/in/aradhya-maheshwari-94296732b
+https://www.linkedin.com/in/aradhya-maheshwari/
 
 ---
 
